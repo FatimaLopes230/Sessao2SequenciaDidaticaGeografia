@@ -1,1 +1,1 @@
-# Sessao2SequenciaDidaticaGeografiacapitais.html
+# Sessao2SequenciaDidaticaGeografia
